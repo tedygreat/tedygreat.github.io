@@ -1,1 +1,0 @@
-# tedygreat.github.io
